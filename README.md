@@ -1,3 +1,3 @@
-### Hi! Im Ritsucks
-## I like to do stuff on computers and code
+## Hi! Im Ritsucks
+ I like to do stuff on computers and code
 
